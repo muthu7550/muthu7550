@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @muthu7550
 - 👀 I’m interested in ...JAVA
-- 🌱 I’m currently learning ...JAVA
+- 🌱 I’m currently learning ... JAVA FULL STOCK DEVELOPMENT 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...muthu3861406@gmail.com
 
